@@ -13,3 +13,11 @@ f nfghnfg fgngh
 ascas á csadcsdcsdcsdc sdc sd csd csd c
 s dcsdc sdc sdc sdc sdcs dc sdc 
 sdc sdc sdc sdc sdc sdc sdc sdcsdc s
+dfbv df dfb dfb 
+dfb dfb dfb dfb df
+b dfb df bdfb dfb d
+fb dfbdfbdfbdf
+b dfb dfbdfb dfb dfbd
+fb dfb dfb dfb df
+dfb dfb dfb dfb df
+b dfb dfb dfb df
