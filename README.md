@@ -3,12 +3,17 @@ học dev cần gì?
 pothyn làm gì?
 tại sao lại học cntt?
 len lại nào
-checksdv sdv sd vsdv sd
-t th rth rth rh rt hrth rth 
-rthrt hrth tryh thẻ ẻghergr
-rthr thrthrh rhr th rthrthr 
-rh rth rty tjyt jmjv sdv sdv sd
-fgbdfb d d df df df df dfsd vsdv s
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  sdv sdv sdv sd
+day 
+day 1
+cretor acc github vs X accdv sdfv 
+viet tieu su, tinhs pointsdvf sdf v
+tạo acc x mới cho hnayds vsdsdv sdv 
 làm sao nhảy?
 nhảy làm gì?
 đam mê ko?
