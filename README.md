@@ -1,35 +1,10 @@
 # web-3-learning-
-tại sao lại học cntt?
-len lại nàohọc toán cao cấp logic.
-viet tieu su, tinhs points
 muốn học dev web 3 cần những gì?
 học ở đâu? đi làm mạng nào về web 3 ?
 mai hoc gi?học toán cao cấp logic.
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-tìm hiểu web 3 trên ytb
-muốn học dev web 3 cần những gì?
-học ở đâu? đi làm mạng nào về web 3 ?
 mai hoc gi?học toán cao cấp logic.
-cretor acc github vs X 
 viet tieu su, tinhs points
 tạo acc x mới cho hnay
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-làm sao làm bài tập
 học toán cao cấp logic.
 cretor acc github vs X 
 viet tieu su, tinhs points
@@ -42,3 +17,4 @@ mai hoc gi?học toán cao cấp logic.
 cretor acc github vs X 
 viet tieu su, tinhs points
 tạo acc x mới cho hnay
+
